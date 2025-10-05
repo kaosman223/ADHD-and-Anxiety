@@ -1,0 +1,1 @@
+These files explore the relationship between ADHD and its comorbidity of anxiety in adolescents, potentially proposing cognitive-behavioral therapy as an additional treatment alternative to medication
